@@ -16,7 +16,7 @@
 **更详细的图文教程请点击这里 ==>** [小米路由器mini刷机支持锐捷](https://www.cnblogs.com/jinchengll/p/11729210.html)
 
 ## 联系方式
-Email: jinchengllqq.com
+Email: jinchengll@qq.com
 
 
 
